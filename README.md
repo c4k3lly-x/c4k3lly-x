@@ -47,6 +47,9 @@
   <p align="left">
     <u><img width="200" height="200" alt="1000000845" src="https://github.com/user-attachments/assets/5c254a4d-d42f-48db-a8b4-6fb13cedf4f7" /> $\color{#3e4449}{\textsf{Batgirl!}}$</u>
 
+<p align="right">
+<u> $\color{#3e4449}{\textsf{Blackbat!}}$ <img width="200" height="200" alt="1000000844" src="https://github.com/user-attachments/assets/3f48f3b7-7d24-4936-91ce-ec33d7355849" /> </u>
+
 
 
 

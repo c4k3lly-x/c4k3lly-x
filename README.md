@@ -1,14 +1,25 @@
-<div align=middle>
+<div align="middle">
 
-
-
+  
 <img width="1470" height="394" alt="1000000853" src="https://github.com/user-attachments/assets/f89ee9b8-7c12-407d-b541-500deb311118" />
 
-
-
-
+#### ${CARRIE ミ KELLEY}$
 
 <img width="400" height="600" alt="1000000815" src="https://github.com/user-attachments/assets/1c2f8749-38ad-4ca9-a835-05561800fe63" />
+
+
+
+
+
+<a href=""><img src="https://github.com/user-attachments/assets/d8fa3792-9c9e-4628-8cd3-bb6725b003ba" width="200" height="400" align="left"></img></a> <br>
+<br>
+<sub>(WIP) refer to my links!</sub>
+<br>
+<img width="200" height="200" alt="1000000833" src="https://github.com/user-attachments/assets/d87e4b44-adb1-49a2-886c-52b454ec333f" />
+<img width="200" height="200" alt="1000000832" src="https://github.com/user-attachments/assets/cbab3be7-f87e-4f36-948c-592070f67cc1" />
+<img width="200" height="200" alt="1000000852" src="https://github.com/user-attachments/assets/d9764f90-58a7-471d-b54a-71182a7d73a4" />
+
+
 
 
 

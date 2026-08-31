@@ -24,14 +24,28 @@
 
 <img width="2300" height="200" alt="1000000856" src="https://github.com/user-attachments/assets/0ccc46bf-ea6e-40e5-b5f2-7a83670c7e3f" />
 
+<p align="left">
+  <u><img width="200" height="200" alt="1000000851" src="https://github.com/user-attachments/assets/07c58419-e248-4abf-a78c-f92b633b4463" /> $\color{#3e4449}{\textsf{Batman!}}$</u>
 
-<img width="120" height="120" alt="1000000851" src="https://github.com/user-attachments/assets/07c58419-e248-4abf-a78c-f92b633b4463" />
-<img width="120" height="120" alt="1000000850" src="https://github.com/user-attachments/assets/4d686d44-d6e8-4ecb-88b0-c83e4b380b9d" />
-<img width="120" height="120" alt="1000000849" src="https://github.com/user-attachments/assets/60bbf0c0-61b1-4761-b49d-05dadbdd53a1" />
-<img width="120" height="120" alt="1000000848" src="https://github.com/user-attachments/assets/95f459d4-b4b2-4dad-9891-ed87cb692713" />
-<img width="120" height="120" alt="1000000847" src="https://github.com/user-attachments/assets/56e367c5-fd49-4277-a4ff-dda96bc852f8" />
-<img width="120" height="120" alt="1000000846" src="https://github.com/user-attachments/assets/02bfa053-a539-4902-b07c-7badfee4752e" />
-<img width="120" height="120" alt="1000000845" src="https://github.com/user-attachments/assets/5c254a4d-d42f-48db-a8b4-6fb13cedf4f7" />
+
+<p align="right">
+  <u>$\color{#3e4449}{\textsf{Nightwing!}}$ <img width="200" height="200" alt="1000000850" src="https://github.com/user-attachments/assets/4d686d44-d6e8-4ecb-88b0-c83e4b380b9d" /></u>
+
+<p align="left">
+<u><img width="200" height="200" alt="1000000849" src="https://github.com/user-attachments/assets/60bbf0c0-61b1-4761-b49d-05dadbdd53a1" /> $\color{#3e4449}{\textsf{Red Hood!}}$</u>
+
+  
+<p align="right">
+  <u>$\color{#3e4449}{\textsf{Red Robin!}}$ <img width="200" height="200" alt="1000000848" src="https://github.com/user-attachments/assets/95f459d4-b4b2-4dad-9891-ed87cb692713" /> </u>
+
+<p align="left">
+<u> <img width="200" height="200" alt="1000000847" src="https://github.com/user-attachments/assets/56e367c5-fd49-4277-a4ff-dda96bc852f8" /> $\color{#3e4449}{\textsf{Robin!}}$ </u>
+
+<p align="right">
+<u>$\color{#3e4449}{\textsf{Spoiler!}}$ <img width="200" height="200" alt="1000000846" src="https://github.com/user-attachments/assets/02bfa053-a539-4902-b07c-7badfee4752e" /> </u>
+
+  <p align="left">
+    <u><img width="200" height="200" alt="1000000845" src="https://github.com/user-attachments/assets/5c254a4d-d42f-48db-a8b4-6fb13cedf4f7" /> $\color{#3e4449}{\textsf{Batgirl!}}$</u>
 
 
 

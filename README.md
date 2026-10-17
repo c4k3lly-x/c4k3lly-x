@@ -1,14 +1,14 @@
 <div align="middle">
 
   
-<img width="1470" height="394" alt="1000000853" src="https://github.com/user-attachments/assets/f89ee9b8-7c12-407d-b541-500deb311118" />
+<img alt="1000000853" src="https://github.com/user-attachments/assets/f89ee9b8-7c12-407d-b541-500deb311118" />
 
 #### ${CARRIE ミ KELLEY}$
 
-<img width="400" height="600" alt="1000000815" src="https://github.com/user-attachments/assets/1c2f8749-38ad-4ca9-a835-05561800fe63" />
+<img alt="1000000815" src="https://github.com/user-attachments/assets/1c2f8749-38ad-4ca9-a835-05561800fe63" />
 
 
-<img width="2300" height="200" alt="1000000856" src="https://github.com/user-attachments/assets/0ccc46bf-ea6e-40e5-b5f2-7a83670c7e3f" />
+<img alt="1000000856" src="https://github.com/user-attachments/assets/0ccc46bf-ea6e-40e5-b5f2-7a83670c7e3f" />
 
 
 
@@ -16,38 +16,38 @@
 <br>
 <sub>(WIP) refer to my links!</sub>
 <br>
-[<img width="200" height="200" alt="1000000833" src="https://github.com/user-attachments/assets/d87e4b44-adb1-49a2-886c-52b454ec333f" />](https://multivisionary.atabook.org/)
-[<img width="200" height="200" alt="1000000832" src="https://github.com/user-attachments/assets/cbab3be7-f87e-4f36-948c-592070f67cc1" />](https://github.com/sketchyremorse)
-[<img width="200" height="200" alt="1000000852" src="https://github.com/user-attachments/assets/d9764f90-58a7-471d-b54a-71182a7d73a4" />](https://pixelatedarchives.straw.page)
+[<img alt="1000000833" src="https://github.com/user-attachments/assets/d87e4b44-adb1-49a2-886c-52b454ec333f" />](https://multivisionary.atabook.org/)
+[<img alt="1000000832" src="https://github.com/user-attachments/assets/cbab3be7-f87e-4f36-948c-592070f67cc1" />](https://github.com/sketchyremorse)
+[<img alt="1000000852" src="https://github.com/user-attachments/assets/d9764f90-58a7-471d-b54a-71182a7d73a4" />](https://pixelatedarchives.straw.page)
 
 <br>
 
-<img width="2300" height="200" alt="1000000856" src="https://github.com/user-attachments/assets/0ccc46bf-ea6e-40e5-b5f2-7a83670c7e3f" />
+<img alt="1000000856" src="https://github.com/user-attachments/assets/0ccc46bf-ea6e-40e5-b5f2-7a83670c7e3f" />
 
 `OTHER BATFAMILY MEMBERS COMING;DUKE , MIA MIZOGUCHI , TERRY MCGINNIS , HELENA WAYNE , LUKE FOX`
 
-[<img width="200" height="200" alt="1000000851" src="https://github.com/user-attachments/assets/07c58419-e248-4abf-a78c-f92b633b4463" />](https://github.com/batmanzz-Aerisz)
+[<img alt="1000000851" src="https://github.com/user-attachments/assets/07c58419-e248-4abf-a78c-f92b633b4463" />](https://github.com/batmanzz-Aerisz)
 
 # <kbd> ˚₊‧꒰ა . ——— ˗ˏˋ BATMAN ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚
 
 
-[<img width="200" height="200" alt="1000000850" src="https://github.com/user-attachments/assets/4d686d44-d6e8-4ecb-88b0-c83e4b380b9d" />](https://github.com/bluudhaven)
+[<img alt="1000000850" src="https://github.com/user-attachments/assets/4d686d44-d6e8-4ecb-88b0-c83e4b380b9d" />](https://github.com/bluudhaven)
 # <kbd> ˚₊‧꒰ა . ——— ˗ˏˋ NIGHTWING ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚
 
-[<img width="200" height="200" alt="1000000849" src="https://github.com/user-attachments/assets/60bbf0c0-61b1-4761-b49d-05dadbdd53a1" />](https://github.com/sebvsene)
-[<img width="200" height="200" alt="1000000848" src="https://github.com/user-attachments/assets/95f459d4-b4b2-4dad-9891-ed87cb692713" />](https://github.com/timstalkerdrake)
-[<img width="200" height="200" alt="1000000847" src="https://github.com/user-attachments/assets/56e367c5-fd49-4277-a4ff-dda96bc852f8" />](https://github.com/waynesheir)
+[<img alt="1000000849" src="https://github.com/user-attachments/assets/60bbf0c0-61b1-4761-b49d-05dadbdd53a1" />](https://github.com/sebvsene)
+[<img alt="1000000848" src="https://github.com/user-attachments/assets/95f459d4-b4b2-4dad-9891-ed87cb692713" />](https://github.com/timstalkerdrake)
+[<img alt="1000000847" src="https://github.com/user-attachments/assets/56e367c5-fd49-4277-a4ff-dda96bc852f8" />](https://github.com/waynesheir)
 # <kbd>˚₊‧꒰ა . ——— ˗ˏˋ RED HOOD——— ✮ ——— RED ROBIN ———✮——— ROBINˎˊ˗ ——— ˖ ໒꒱ ‧₊˚ </kbd>
 
 
-[<img width="200" height="200" alt="1000000846" src="https://github.com/user-attachments/assets/02bfa053-a539-4902-b07c-7badfee4752e" />](https://GitHub.com/sketchyremorse)
-    [<img width="200" height="200" alt="1000000845" src="https://github.com/user-attachments/assets/5c254a4d-d42f-48db-a8b4-6fb13cedf4f7" />](https://GitHub.com/oraclegordon)
-      [<img width="200" height="200" alt="1000000844" src="https://github.com/user-attachments/assets/3f48f3b7-7d24-4936-91ce-ec33d7355849" />](https://GitHub.com/sweetdeathstar)
+[<img alt="1000000846" src="https://github.com/user-attachments/assets/02bfa053-a539-4902-b07c-7badfee4752e" />](https://GitHub.com/sketchyremorse)
+    [<img alt="1000000845" src="https://github.com/user-attachments/assets/5c254a4d-d42f-48db-a8b4-6fb13cedf4f7" />](https://GitHub.com/oraclegordon)
+      [<img alt="1000000844" src="https://github.com/user-attachments/assets/3f48f3b7-7d24-4936-91ce-ec33d7355849" />](https://GitHub.com/sweetdeathstar)
 # <kbd> ˚₊‧꒰ა . ——— ˗ˏˋ SPOILER ——— ✮ ——— BATGIRL ——— ✮ ——— BLACKBAT ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚</kbd>
 
 
 
-<img width="1470" height="394" alt="1000000854" src="https://github.com/user-attachments/assets/93c8ce6e-34f8-4093-8091-978609552cea" />
+<img alt="1000000854" src="https://github.com/user-attachments/assets/93c8ce6e-34f8-4093-8091-978609552cea" />
 
 
 
